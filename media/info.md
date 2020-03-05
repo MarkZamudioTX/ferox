@@ -1,0 +1,1 @@
+# Todos los recursos agregados en esta carpeta son libres de derechos de autor
